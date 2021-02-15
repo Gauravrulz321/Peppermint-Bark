@@ -1,0 +1,1 @@
+For this exquisite recipe you will be needing 12 ounces of white candy melts, along with 18 mini candy canes, or 5 large candy canes. You also need a rubber spatula, a plastic zip-top bag, a rolling pin, parchment paper, and a cookie sheet.

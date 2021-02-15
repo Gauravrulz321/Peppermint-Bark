@@ -1,0 +1,1 @@
+A very simple yet mind blowingly tasty chocolate with a hint of peppermint infused in the chocolate.
